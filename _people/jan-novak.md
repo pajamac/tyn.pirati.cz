@@ -25,7 +25,8 @@ Zajímá se o politologii, ať již co se týká politické filosofie, sociologi
 ### Příjmy radního Jana Nováka za činost v RM města Týn nad Vltavou
 | 2019     | 2020     |
 |----------|----------|
-| 6 871 Kč měsíčně | 6 236 Kč měsíčně |
+| 6 871* Kč | 6 236* Kč |
+* - čistý měsíční příjem
 ### Historie
 
 - 2014 – 2015 člen [Kontrolní komise](https://wiki.pirati.cz/kk/start)
