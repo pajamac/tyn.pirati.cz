@@ -26,6 +26,7 @@ Zajímá se o politologii, ať již co se týká politické filosofie, sociologi
 | 2019     | 2020     |
 |----------|----------|
 | 6 871* Kč | 6 236* Kč |
+
 \* - čistý měsíční příjem
 ### Historie
 
