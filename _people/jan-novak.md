@@ -31,12 +31,6 @@ Zajímá se o politologii, ať již co se týká politické filosofie, sociologi
 ### Historie
 
 - 2014 – 2015 člen [Kontrolní komise](https://wiki.pirati.cz/kk/start)
-- 2015 – doposud předseda MS Českobudějovicko
-- 2017 vedoucí [Personálního odboru](https://wiki.pirati.cz/po/start)
-- 2017 - doposud vedoucí místopředseda MS Českobudějovicka
-- 2018 - doposud člen [Kontrolní komise](https://wiki.pirati.cz/kk/start)
-
-- 2014 – 2015 člen [Kontrolní komise](https://wiki.pirati.cz/kk/start)
 - 2015– 2017 předseda MS Českobudějovicko
 - 2017 - vedoucí [Personálního odboru](https://wiki.pirati.cz/po/start)
 - 2017 – doposud místopředseda MS Českobudějovicko
